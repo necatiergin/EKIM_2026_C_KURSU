@@ -38,10 +38,10 @@ Bu eğitim sonrasında: <br>
 👨 [Necati Ergin Youtube kanalı](https://www.youtube.com/@necatiergin)<br><br>
 
 #### 💰 Ücretlendirme<br>
-💳 **Genel katılım ücreti**: **40.000TL**<br>
-💸 **Peşin ödemede**   : **35.000 TL**<br>
-🎓 **Öğrenci ücreti    : 35.000 TL<br>
-💸 Peşin ödemede       : 30.000 TL<br>**
+💳 **Genel katılım ücreti**: **32.000TL**<br>
+💸 **Peşin ödemede**   : **30.000 TL**<br>
+🎓 **Öğrenci ücreti    : 28.000 TL<br>
+💸 Peşin ödemede       : 25.000 TL<br>**
 💠 **Ücret 2 taksite bölünebilir.<br>**
 
 🏢 Bu eğitim, **Plepa Eğitim Hizmetleri** tarafından düzenlenmektedir.<br>
