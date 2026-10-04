@@ -24,7 +24,7 @@ Bu eğitim sonrasında: <br>
 
 **🧩 Eğitime İlişkin Bilgiler**
 
-📅 Başlangıç Tarihi: **20 Ekim 2026 Salı**<br>
+📅 Başlangıç Tarihi: **27 Ekim 2026 Salı**<br>
 🕒 **Ders Günleri ve Saatleri: Salı, Perşembe ve Cuma günleri, saat 19:30 – 22:30 (Haftada 9 saat)<br>**
 ⏳ **Toplam Süre: 150 saat<br>**
 
